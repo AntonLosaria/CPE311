@@ -6,5 +6,3 @@ Some others are playing video games of all kinds of genres, and reading light no
 Regarding other details, I am quite laid-back but when it comes it school work sometimes I am quite strict with myself and other times laid-back as well. It usually depends
 on what kind of activity it is.
 
-I am around 23 and I stopped taking education for quite a while due to the quarantine, it wasn't my cup of tea to always be at home for education at that time. I needed to
-be outside at least sometimes for me to be in the headspace for learning. 
